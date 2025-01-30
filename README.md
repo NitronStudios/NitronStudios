@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NitronStudios
+- 👀 I’m interested in Wealth
+- 🌱 I’m currently learning Commerce
+- 📫 How to reach me through my mail- ppappandit3@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm lazy 
